@@ -1,0 +1,3 @@
+## 2.2\. Study Animals {#2-2-study-animals}
+
+The study was conducted on a total of 1604 milk samples had collected from; Darolabu (274), Boke (300), Kombolcha (368), Meta (329) and Odabultum (333) wereda from 73, 79, 92, 83 and 86 cows of different PA respectively. In order to avoid false positive result due to the colostrum in the early milking cows, only those cows after 15 days of parturition were sampled. Whereas for _small ruminant helminthiasis_ in average **350** fecal samples from each species. A total of (1378;1290)(ovaine;caprine)respectivelyDoba(350;350),Meta(420;416),Haromaya(156;126),Kersa(452;398).

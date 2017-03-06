@@ -1,0 +1,3 @@
+## 3.1 selection of target areas {#3-1-selection-of-target-areas}
+
+The selection of wereda was depending on the actual prevalence of the disease as well as road accessibility. _California Mastitis Test (CMT)_ was used to test mastitis at herd level and was applied at least twice in a month. The laboratory provided them; mastitis survey result, recommendations on the ways of prevention and control, and work action plan to the wereda since **_September 2006_**. to undertake the activity recommendations was given for each respective wereda were translated to Afan Oromo and distributed to district livestock &amp;fisher office to be distributed to veterinarians assigned at the selected PA’s of the wereda.

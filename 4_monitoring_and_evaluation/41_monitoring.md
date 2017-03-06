@@ -1,0 +1,5 @@
+## **_4.1 Monitoring_** {#4-1-monitoring}
+
+Continuous follow-ups were done by visit as well as phone communication to facilitate the survey result implementation activity. At each monitoring time necessary reagent like _California mastitis screening reagent_, (Na<sub>2</sub> (OH) was distributed adequately to the assigned veterinarians working in the clinics of the selected PA’s. the same way had applied for strategic control methods implemented for _small ruminant helminthiasis_.
+
+During the monitoring activity, the team from the laboratory was carried out a discussion with the respective stockholder which involves wereda administrator, livestock &amp; fisher office district representatives and animal health Professionals from wereda about the importance of strategic control methods recommended.
